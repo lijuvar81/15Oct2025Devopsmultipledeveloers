@@ -1,0 +1,1 @@
+# 15Oct2025Devopsmultipledeveloers
